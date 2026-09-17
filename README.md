@@ -10,7 +10,7 @@ PLEASSSSEEEEEUHHHH 🙏🥺
 <img width="1447" height="211" alt="Untitled1436_20260917110042" src="https://github.com/user-attachments/assets/600c699b-9ccd-4ba3-abb4-cc0de6f582e6" />
 
 <p align="center">
-# <img width="735" height="442" alt="cutecore" src="https://github.com/user-attachments/assets/39e92b79-d322-4ebe-85fc-d50f7522711a" />
+<img width="735" height="442" alt="cutecore" src="https://github.com/user-attachments/assets/39e92b79-d322-4ebe-85fc-d50f7522711a" />
 
 <p align="center">
 <img width="1447" height="211" alt="Untitled1436_20260917110042" src="https://github.com/user-attachments/assets/47e25008-d821-4c1b-95d4-a58e2967961c" />
