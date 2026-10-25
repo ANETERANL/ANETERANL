@@ -17,6 +17,7 @@ if you haven't, check my links!<br>
   ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 <p align="center">
 <img width="735" height="442" alt="cutecore" src="https://github.com/user-attachments/assets/39e92b79-d322-4ebe-85fc-d50f7522711a" />
+<br>
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔<br>
   you should commission me or get a freebie 👀
 <p align="center">
